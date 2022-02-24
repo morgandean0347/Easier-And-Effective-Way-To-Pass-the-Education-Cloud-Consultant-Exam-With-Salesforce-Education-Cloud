@@ -1,0 +1,1 @@
+# Easier-And-Effective-Way-To-Pass-the-Education-Cloud-Consultant-Exam-With-Salesforce-Education-Cloud
